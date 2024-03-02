@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AzamatZr
+- 👀 I’m interested in web-development
+- 🌱 I’m currently learning in college
+- 💞️ I’m looking to collaborate with Rock
+- 📫 How to reach me [TG](https://t.me/azabraza) 
